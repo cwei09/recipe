@@ -1,3 +1,4 @@
+Let's begin!
 Guacamole Ingredients:
 3 Haas avocados, halved, seeded and peeled
 
@@ -18,3 +19,5 @@ Guacamole Ingredients:
 1 tablespoon chopped cilantro
 
 1 clove garlic, minced
+
+Enjoy my recipe!
